@@ -1,2 +1,2 @@
 # AI-slop
-day 2 i dont use fucking chatbots
+day 4 i dont use fucking chatbots
